@@ -5,7 +5,7 @@
 I’m <a href="https://github.com/HopSoy">HopSoy</a> a small time game developer with a passion for FiveM and video games in general. I play all types of games.  
 
 • Let me know if you need anything;<br>
-• How to reach me: [Discord](https://discord.gg/m4BvmkG);<br>
+• How to reach me: [Email Works Best](mailto://hopsoy@gmail.com);<br>
 
 **Languages and Tools:**  
 
